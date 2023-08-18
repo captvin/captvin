@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **alpinoke82@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/captvin/My-experiences/blob/main/CV_MUHAMMAD%20ADHE%20ALVIN_030523.pdf](https://github.com/captvin/My-experiences/blob/main/CV_MUHAMMAD%20ADHE%20ALVIN_030523.pdf)
+- 📄 Know about my experiences [My profile](https://profile.adhealvin.online/)
 
 - ⚡ Fun fact **suka jedag jedug**
 
